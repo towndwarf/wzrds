@@ -19,6 +19,8 @@ a place for our books and materials./место для наших книг и и
 
 •	Facebook: 	facebook.com/al.wzrd , facebook.com/aleksandra.abraham.meditation
 
+•	https://wzrds.family
+
 
 Желающим поблагодарить нас за время, потраченное на написание и сотни часов вычитки:
 
@@ -41,6 +43,13 @@ a place for our books and materials./место для наших книг и и
 
 Автор ©: Александра Абрахам, 2020гг. 
 Лицензия/распространение: Creative Common
+
+•	Email: 	sasha.abraham33@gmail.com,
+
+•	Facebook: 	facebook.com/aleksandra.abraham.meditation
+
+•	https://wzrds.family
+
 
 
 
