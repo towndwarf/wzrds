@@ -15,7 +15,7 @@ a place for our books and materials./место для наших книг и и
 
 •	Email: 	alexey.abraham@gmail.com, sasha.abraham33@gmail.com,
 
-•	Telegram:  	@AlderWzrd,
+•	Telegram:  	[@AlWzrd](https://t.me/ALWzrd),
 
 •	Facebook: 	facebook.com/al.wzrd , facebook.com/aleksandra.abraham.meditation
 
